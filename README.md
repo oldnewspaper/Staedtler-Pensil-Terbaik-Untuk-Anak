@@ -1,2 +1,4 @@
-# Staedtler-Pensil-Terbaik-Untuk-Anak
-Beberapa kriteria STAEDTLER Pensil Terbaik Untuk Anak adalah: memiliki lead yang empuk untuk menulis, mudah digenggam, pas dan nyaman di tangan, serta aman untuk digunakan pada anak.
+# Staedtler Pensil Terbaik Untuk Anak
+Beberapa kriteria <a href="http://bit.ly/2fVXR6o"><b><i>STAEDTLER Pensil Terbaik Untuk Anak</i></b></a> adalah: memiliki lead yang empuk untuk menulis, mudah digenggam, pas dan nyaman di tangan, serta aman untuk digunakan pada anak. Memilih produk pensil yang terbaik untuk anak sebaiknya dilakukan secermat mungkin agar bisa merangsang perkembangan kreativitasnya dengan baik. Hal ini merupakan cara efektif yang bisa diterapkan pada anak agar kreativitasnya bisa berkembang dengan baik.
+
+Memberikan pensil atau alat tulis lainnya beserta kertas kosong kepada anak di usia dini, akan menjadikan anak memiliki daya cipta yang tinggi. Tidak hanya anak, bahkan kebanyakan orang akan menggunakan alat tulis seperti pensil untuk menuangkan ide-ide dalam pikirannya melalui tulisan, gambar, dan atau coretan. Pastikan memilih produk <a href="http://bit.ly/2faFkSp"><b><i>Staedtler Pensil Terbaik Untuk Anak</i></b></a> dalam keluarga demi untuk mengasah kreativitas buah hati anda. Anak yang berkembang dengan kreativitas tinggi, tentunya akan memiliki ide-ide cemerlang yang luar biasa.
